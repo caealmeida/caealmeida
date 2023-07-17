@@ -1,2 +1,2 @@
 
-![](https://user-images.githubusercontent.com/17756190/161398827-47cd05c4-2686-40fd-9038-2c60f05b78a6.png)
+![](https://github.com/caealmeida/caealmeida/assets/17756190/384765dd-ef63-4216-9825-f4a31db921a9)
